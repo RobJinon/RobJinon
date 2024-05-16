@@ -1,4 +1,4 @@
-# 💀 Robien Jinon
+# 💀 Jon Robien Jinon
 🔭 I'm an aspiring Web Developer<br>🎓 I studied Computer Science at the University of the Philippines Visayas<br>🎹 I do music production and love to play and learn how to play different types of instruments in my free time
 
 
